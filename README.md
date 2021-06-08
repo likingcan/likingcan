@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @likingcan
+- 👀 I’m interested in code
